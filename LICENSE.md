@@ -1,4 +1,4 @@
-
+smart Script for kaizen is the best kaizen Script, featuring speed and undetectable. Safe and powerful for all your needs.
 
 
 
